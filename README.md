@@ -1,5 +1,5 @@
 ## Hi, I'm Pranav 👋🏻🧑🏻‍💻
-![dino](https://github.com/user-attachments/assets/bd908e25-22dc-4a2e-abeb-1c9b55e5839a)
+![image](https://github.com/user-attachments/assets/0f56769a-a569-4f67-8c98-a2f0814ce8c9)
 
 
 <!--

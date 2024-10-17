@@ -1,5 +1,6 @@
 ## Hi, I'm Pranav 👋🏻🧑🏻‍💻
-![image](https://github.com/user-attachments/assets/0f56769a-a569-4f67-8c98-a2f0814ce8c9)
+![Sai Pranav Kothapalli](https://github.com/user-attachments/assets/dc7a015c-cb8e-4381-8c3b-70f149a778c1)
+
 
 
 <!--

@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi, I'm Pranav 👋🏻🧑🏻‍💻
+![image](https://github.com/user-attachments/assets/0f56769a-a569-4f67-8c98-a2f0814ce8c9)
 
 <!--
 **saipranavkothapalli/saipranavkothapalli** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
